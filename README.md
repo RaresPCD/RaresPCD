@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RaresPCD
+- 👀 I’m interested in math and informatics, games as well
+- 🌱 I’m currently learning at a school
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me: rarespribac@gmail.com
